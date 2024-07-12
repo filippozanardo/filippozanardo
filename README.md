@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there i'm Filippo Zanardo 👋
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=filippozanardo)](https://github.com/ryo-ma/github-profile-trophy)
 <!--
