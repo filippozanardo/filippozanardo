@@ -28,4 +28,4 @@ Selected projects & collaborations: **KPMG · AIFI · Casa.it · idealista · Bo
 
 ## Contact
 
-[Website](https://filippozanardo.com/) · [LinkedIn](https://www.linkedin.com/in/filippo-zanardo-43a0299/) · [Email](mailto:zanardo.filippo@gmail.com)
+[Website](https://filippozanardo.com/) · [LinkedIn](https://www.linkedin.com/in/filippo-zanardo-43a0299/)
